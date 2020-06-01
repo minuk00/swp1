@@ -1,1 +1,1 @@
-README
+ban minuk
