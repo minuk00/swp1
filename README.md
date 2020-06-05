@@ -1,2 +1,1 @@
-20203077 ban minuk
-Kookmin Univ. SW
+20203077 ban minuk      Kookmin Univ. SW
