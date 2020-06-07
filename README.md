@@ -1,2 +1,2 @@
 20203077 ban minuk
-Kookmin UNIV. SW
+Kookmin UNIV. SW(CS)
