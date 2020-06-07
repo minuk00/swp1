@@ -1,3 +1,3 @@
-20203077 ban minuk
+ban minuk 20203077
 
-Kookmin Univ. SW
+Kookmin UNIV. SW
